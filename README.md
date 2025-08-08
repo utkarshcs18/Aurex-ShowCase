@@ -61,4 +61,11 @@ For any questions, reach us at:
 
 ## DEMO
 
+---
+
 https://github.com/user-attachments/assets/63885c32-50a5-4bde-9854-9f64e04e608e
+
+---
+
+https://github.com/user-attachments/assets/4dc9910d-2e78-4892-94ac-6d0e1d5c98d3
+
