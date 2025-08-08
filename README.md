@@ -61,4 +61,4 @@ For any questions, reach us at:
 
 ## DEMO
 
-<!-- Uploading "AuRex1.mp4"... -->
+https://github.com/user-attachments/assets/63885c32-50a5-4bde-9854-9f64e04e608e
