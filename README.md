@@ -60,7 +60,7 @@ Just drop me an Email to get started.
 
 ---
 
-## DEMO
+## DEM0
 
 ---
 
